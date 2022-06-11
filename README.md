@@ -1,0 +1,2 @@
+# playground-of-ideas
+A space to wonder, question, create and for beliefs about the functions of the mysterious social world.
